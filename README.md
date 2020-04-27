@@ -267,7 +267,7 @@ MEMBERS OF THE 9TH PARLIAMENT OF ZIMBABWE
 | Tshuma Dingilizwe                        | M      | Emakhandeni-Entumbane | MDC-A       | +263778693688 | +2639403688     |             | tshumads@gmail.com               |
 | Tsunga Regai                             | M      | Mutasa South          | MDC-A       | +263777286338 | +263206629      |             | regaitsunga@gmail.com            |
 | Tsuura Nyarai                            | F      | PR                    | ZANU PF     | +263775770139 |             |             |                                  |
-| Tsvangirai Java Vimbayi                  | F      | Glenview South        | MDC-A       | +263771566469 |             |             | vimbaitsvangirai@gmail.com       |
+| Tsvangirai Vincent                    | M      | Glenview South        | MDC-A       | pending |             |             | vimbaitsvangirai@gmail.com       |
 | Tungamirayi Tawanda                      | M      | Zvimba East           | ZANU PF     | +263782934584 |             |             | tawandatungamirai@gmail.com      |
 | Wadyajena Justice Mayor                  | M      | Gokwe Nembudziya      | ZANU PF     | +263772946461 | +263775939506   |             | Justice.mayor@me.com             |
 | Watson Nicola Jane                       | F      | Bulawayo Central      | MDC-A       | +263772284592 | +2632243888     |             | nicbrowncil@gmail.com            |
